@@ -5,14 +5,23 @@
 <img width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/a88c203c-f1a1-4aac-95e2-350b3130a434" />
 
 > HI ! im Datagen , or Marshy , and i have a couple things you should know about me
+> 
 . im very approachable unless in a bad mood , c+h plslspsosls ... int ... psllsls ...
+
 . i love new people ! really , come hang out with me !!
+
 . i do hallucinate , its not very fun .
+
 . im trans + biseuxal 🏳️‍🌈
+
 . Sonic fan !
+
 . BPD + Anger issues + schadenfreude + introverted + ADHD + atychiphobia ( fear of faliure ) + Paranoia , and more
+
 . im a self blamer , which means if something happens to someone else i take the blame .
+
 . besides that , approach me at all times unless iwec , dniuf / dniucf / dniuh , or dni is in my name
+
 . LOVE YOU ALL !! 💌 !!
 
 ![image](https://github.com/user-attachments/assets/6494113d-de4d-4be9-9806-76ff52f3fdeb)
@@ -39,7 +48,7 @@ I LOVE CLANKERS !!!!!!!! / silly
 
 <img width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/a88c203c-f1a1-4aac-95e2-350b3130a434" />
 
-                 > ITS ME ⬇️⬇️
+                  me btw / silly ⬇️⬇️
                  
             
 ![image](https://github.com/user-attachments/assets/cbb2b7cf-4559-4f88-9673-c0d985ace6f1)

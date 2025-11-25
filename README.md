@@ -2,7 +2,7 @@ https://files.catbox.moe/xdhgef.png<img width="1627" height="721" alt="image" sr
 
 ### } | > HxCKING . . . 🌀
 
-https://files.catbox.moe/9oqhfv.png<img width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/d01edcc7-5cbd-43c0-949a-92bf645310a3" />
+ width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/d01edcc7-5cbd-43c0-949a-92bf645310a3" />
 
 
 ![image](https://github.com/user-attachments/assets/6494113d-de4d-4be9-9806-76ff52f3fdeb)

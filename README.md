@@ -1,8 +1,14 @@
 ### } | > HxCKING . . . 🌀
 
+https://files.catbox.moe/9oqhfv.png<img width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/d01edcc7-5cbd-43c0-949a-92bf645310a3" />
+
+
 ![image](https://github.com/user-attachments/assets/6494113d-de4d-4be9-9806-76ff52f3fdeb)
 
 I LOVE CLANKERS !!!!!!!! / silly
+
+https://files.catbox.moe/9oqhfv.png<img width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/a88c203c-f1a1-4aac-95e2-350b3130a434" />
+
 
 ![image](https://github.com/user-attachments/assets/1d220698-499c-4ee0-8491-5b926b2bb733)
 

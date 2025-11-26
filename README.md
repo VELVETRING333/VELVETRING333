@@ -12,6 +12,12 @@ THINGS TO KNOW BOUT ME ! :
 
 . datagen / noli / hyperlaser fictkin ! 💌
 
+
+⚠️ HYPERLASER MAIN ALERT ⚠️
+
+<img width="2388" height="1668" alt="image" src="https://github.com/user-attachments/assets/b259653a-1d4a-4377-971c-f04cc695b460" />
+
+
 . BPD + anger issues + schadenfreude ( enjoying others pa!n ) + introvert + paranoia + atychiphobia ( FEAR OF FAILURE ) + homicidal ideation , and more . :: ⚠️
 
 . secretive , self blamer
